@@ -1,0 +1,12 @@
+# Preface
+
+
+I never imagined I would be writing a book about failure. For most of my life, I treated my missteps like secrets—kept them tucked away, out of sight and out of mind. When I looked for stories about people who stumbled and still found their way, I struggled to hear them above the constant hum of success narratives. We celebrate victories, we post our highlight reels, but rarely do we honour the quiet, messy, invaluable lessons that come from falling on our faces.
+
+Over time it became clear to me that the moments I wanted to erase were actually my greatest teachers. The challenges I resented contained a kind of grace. The problems I tried to fix away were invitations to slow down and listen. And the two most shattering events of my recent life—losing my father and, not long after, my mother—brought me to truths about myself that no easy path could have revealed. In grief I discovered the depth of my resilience. In chaos I found a capacity for presence. Through pain I unearthed a sense of strength that had been there all along, waiting for me to notice.
+
+This book grew out of those realizations. It is a response to the scarcity of voices willing to say, without shame, “Our failures and challenges are gifts.” It is my offering to anyone who has been told to hide their struggles or to “stay positive” when their world is falling apart. I want to normalize falling apart. I want to normalize starting over. I want to remind us all that growth is often disguised as difficulty.
+
+I also wrote these pages with my daughter in mind. Parenthood changes the way you view everything. When I think about her facing her own storms someday, I don’t want her to feel unprepared or isolated. I want her to see vulnerability modelled. I want her to know that strength isn’t the absence of pain but the willingness to feel it fully and keep moving forward. My hope is that she will one day read these words and find solace, guidance or simply a sense of recognition.
+
+What follows is not a step‑by‑step guide, nor a prescription for how to live. It is a collection of reflections born from my own descents and ascents, offered in the spirit of companionship. May it invite you to reconsider your relationship with hardship. May it encourage you to sit with what hurts until it reveals its wisdom. And may it remind you, as it has reminded me, that the ember of the phoenix is always glowing within you—waiting for the right moment to blaze.

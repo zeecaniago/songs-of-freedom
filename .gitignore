@@ -1,0 +1,29 @@
+# macOS
+.DS_Store
+.AppleDouble
+.LSOverride
+
+# Python
+__pycache__/
+*.py[cod]
+*.pyo
+*.pyd
+.Python
+build/
+dist/
+*.egg-info/
+
+# Editors/IDE
+.vscode/
+.idea/
+*.swp
+*.swo
+
+# Temp extraction
+.pages_extracted/
+
+# Archives and previews
+*.zip
+*.bak
+~$*
+
